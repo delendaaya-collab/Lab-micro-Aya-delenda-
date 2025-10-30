@@ -1,1 +1,0 @@
-# Lab-micro-Aya-delenda-
